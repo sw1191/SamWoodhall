@@ -1,4 +1,4 @@
-Hi There 👋
+Hi there 👋
 
 My name is Sam Woodhall, and I am a Business Information Systems student at CCCU
 
